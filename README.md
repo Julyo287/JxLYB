@@ -1,1 +1,3 @@
-# JxLYB
+# JxLYB 
+
+SC ANTI DECODE :v 
